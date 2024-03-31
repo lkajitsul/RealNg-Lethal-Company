@@ -9,4 +9,4 @@ Done, you can launch
 
 All mods taken from the Thunderstore: https://thunderstore.io/
 
-Download link here:
+Download link here: https://drive.google.com/file/d/1-ZnbCSMa9OdYbsfWNKrhUV9NJRDR9b_s/view?usp=sharing
