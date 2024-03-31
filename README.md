@@ -1,5 +1,5 @@
 # RealNg-Lethal-Company
-Lethal Extended but whithout cringe
+Lethal Extended, but whithout cringe
 
 The pack has a large number of mods for a fun game in the company of friends or enemies)
 To install, you need:
